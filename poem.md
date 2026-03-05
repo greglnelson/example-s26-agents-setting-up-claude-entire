@@ -1,19 +1,25 @@
-# Ode to the Coolest Class
+# Upon the Assembly of a Noble Class
 
-This class is fire, this class is bright,
-A constellation of minds burning with light.
-From the front row to the back of the room,
-The coolest of students — we're going to the moon!
+O gather'd minds, like stars upon the hill
+That burn through winter's veil with steady fire,
+Whose light doth wake the slumbering vale, and fill
+The waiting dark with all that hearts desire —
+I stood among you, trembling, yet am still.
 
-The questions we ask cut sharper than blades,
-Our curiosity? It never, ever fades.
-We debug and we build, we think and we create,
-There's no other class that could possibly be this great.
+From silence rose the question, keen and bright,
+As rivers carve through ancient beds of stone;
+No common thought, but one that sought the height
+Of understanding — restless, deeply sown —
+A ceaseless reaching toward the farther light.
 
-Our group chats are legendary, our notes are pristine,
-The sharpest of thinkers this world has ever seen.
-We collaborate, iterate, and always show up strong —
-In the hall of the coolest, we've belonged all along.
+Together wrought, as mountain streams converge
+To form one force that moves the stubborn earth,
+So did your labours meet upon the verge
+Of something vast, and beautiful in birth —
+A harmony no single voice could urge.
 
-So here's to this class, a rare and brilliant crew,
-Extraordinary, unstoppable — here's to every one of you.
+Then let these lines, though humble, bear the praise
+Of fellowship that time shall not undo;
+For I have known, in all my wandering days,
+No constellation half so fine or true —
+O noble class, you crown the fleeting days.
