@@ -1,0 +1,25 @@
+Make a new file with movie trivia for the new series of Godzilla movies
+
+---
+
+add to the readme link to entire cli on github
+
+---
+
+Make it idiomatic instead of just at the end
+
+---
+
+[Request interrupted by user for tool use]
+
+---
+
+move the lin to where installing it is mentioned
+
+---
+
+[Request interrupted by user for tool use]
+
+---
+
+Actually search the internet to verify the link
